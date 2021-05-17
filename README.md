@@ -1,2 +1,0 @@
-# tiffsberries.github.io
-business
